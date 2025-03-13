@@ -33,3 +33,115 @@ Kalyan Matka की शुरुआत 1960 के दशक में हुई
 Dpboss Fix Chart एक विशिष्ट चार्ट होता है, जो Kalyan Matka और अन्य Matka गेम्स के लिए भविष्यवाणी (Prediction) करने में मदद करता है। इसमें पुराने रिजल्ट्स और संभावित नए नंबरों की जानकारी दी जाती है। इस चार्ट की मदद से खिलाड़ी संभावित जीतने वाले नंबरों का अंदाजा लगा सकते हैं और अपने दांव को प्लान कर सकते हैं।  
 
 ---
+
+
+## Live
+
+## Morning Sessions  
+- **MILAN MORNING**  
+  145-09-270  
+  10:15 AM - 11:15 AM  
+
+- **SRIDEVI**  
+  568-90-244  
+  11:35 AM - 12:35 PM  
+
+- **KALYAN MORNING**  
+  167-40-479  
+  11:00 AM - 12:02 PM  
+
+- **PADMAVATHI**  
+  246-21-678  
+  11:40 AM - 12:40 PM  
+
+- **MADHURI**  
+  238-38-125  
+  11:45 AM - 12:45 PM  
+
+- **RAJDHANI MORNING [Main]**  
+  456-58-468  
+  11:25 AM - 12:55 PM  
+
+- **SRIDEVI MORNING**  
+  579-14-248  
+  09:30 AM - 10:30 AM  
+
+- **KARNATAKA DAY**  
+  467-78-378  
+  10:00 AM - 11:00 AM  
+
+- **TIME BAZAR MORNING**  
+  130-47-890  
+  11:10 AM - 12:10 PM  
+
+- **MAHARANI**  
+  699-40-145  
+  12:15 PM - 02:15 PM  
+
+- **TIME BAZAR**  
+  558-82-390  
+  01:10 PM - 02:10 PM  
+
+- **TARA MUMBAI DAY**  
+  378-82-156  
+  01:35 PM - 03:00 PM  
+
+- **PRABHAT**  
+  370-07-269  
+  01:30 PM - 03:00 PM  
+
+- **DIAMOND**  
+  344-17-188  
+  01:30 PM - 03:00 PM  
+
+- **PUNA BAZAR**  
+  158-41-560  
+  01:15 PM - 03:15 PM  
+
+- **TIME BAZAR DAY**  
+  150-67-890  
+  02:00 PM - 04:00 PM  
+
+- **BK BAZAR**  
+  457-64-446  
+  02:00 PM - 04:00 PM  
+
+- **MILAN DAY**  
+  770-42-255  
+  03:20 PM - 05:20 PM  
+
+- **MAIN BAZAR DAY**  
+  578-02-129  
+  03:35 PM - 05:35 PM  
+
+- **KALYAN**  
+  156-29-180  
+  04:18 PM - 06:18 PM  
+ 
+- **SRIDEVI NIGHT**  
+  333-9  
+  07:15 PM - 08:15 PM  
+
+- **DIAMOND NIGHT**  
+  Loading...  
+  08:00 PM - 09:00 PM  
+
+- **MADHURI NIGHT**  
+  458-7  
+  06:45 PM - 07:45 PM  
+
+- **NIGHT TIME BAZAR**  
+  550-02-390  
+  08:35 PM - 10:35 PM  
+
+- **TARA MUMBAI NIGHT**  
+  279-80-479  
+  08:30 PM - 10:30 PM  
+
+- **MILAN NIGHT**  
+  379-93-346  
+  09:15 PM - 11:15 PM  
+
+- **RAJDHANI NIGHT**  
+  147-25-456  
+  09:35 PM - 11:45 PM  
